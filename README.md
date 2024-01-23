@@ -1,1 +1,1 @@
-![298382853-a58266a1-e7a2-464b-8a01-16743c9ea5cf.png](..%2F298382853-a58266a1-e7a2-464b-8a01-16743c9ea5cf.png)
+![снимок](https://github.com/Valeria1616/Docker/assets/142202736/f1e3410a-7bec-45c8-9f2c-e03a301e2edf)
